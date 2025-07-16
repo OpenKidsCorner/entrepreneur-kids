@@ -34,3 +34,23 @@ Alhamdulillah, after a quick search came accross these three link.
   - An artical that came up through google search. Its published at Zillion Designs written by Mehreen Siddigue. It briefly gives a historical context + adds a few prominent elements found in islamic art
 
 May Allah make it easier for us and the kids to learn from these.
+
+## Some notes of the activities
+- Wife and kids tried to read and understand the content. They tried a couple of times. But kind of gave up because they were not able to fully grasp the concepts.
+Hence, kids just used them to add some words to their vocabulary list
+
+- Father gave them a brief overview a couple of times in-between.
+
+- Then we had a long brainstorming session as a whole family. We tried to document mission and vission for OKC. For that we explored the mission and vission of a couple of schools
+Through detailed discussions we came up with a few key points.
+
+
+- We then had a couple of more collective sessions. This time the focus was to document our thoughts. Hence we used whiteboard of Canva to document it. We went through previous notes, thought a bit more about it. and Then we came up with a mission statement and few key words for theme inspiration
+
+## A few week delay
+We then ended up with a few weeks pause to the activity due to eid, travels, shifting and other breaks that came after each other.
+
+## Outcome
+
+At the end we came up with the following document
+- [OKC - Mission and Theme Brainstorming.pdf](./OKC%20-%20Mission%20and%20Theme%20Brainstorming.pdf)
